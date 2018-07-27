@@ -1,1 +1,0 @@
-# Oracle-Database-SQL-1Z0-071-Free-Dump-Questions
